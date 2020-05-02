@@ -3,9 +3,9 @@
 Makes two 23 cm thin crust pizzas.
 
 - 300g flour
-- 1/2 tsp instant yeast
-- 1 tsp salt
-- 195ml cup warm water (65% hydration)
+- 5g instant yeast or 15g fresh yeast
+- 6g salt
+- 195ml cup room temp water
 
 1. Combine flour, salt and instant yeast.
 2. Add water and combine until uniform dough.
