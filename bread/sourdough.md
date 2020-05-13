@@ -38,5 +38,7 @@ Makes one loaf.
     4. Bake covered for 20 minutes at 245C.
     5. Bake uncovered for 30 minutes at 230C.
 
-Sources
-	• https://www.theperfectloaf.com/beginners-sourdough-bread/
+**Sources**
+
+- https://www.theperfectloaf.com/beginners-sourdough-bread/
+- https://www.youtube.com/watch?v=f07TNR056eE&feature=youtu.be
