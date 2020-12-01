@@ -11,7 +11,7 @@
 - 2 egg yolks (at room temperature)
 - cinnamon powder for sprinkling
 
-Wash and bake the rice in 2 cups well filled with hot water with a pinch of salt, on a low heat. Allow to absorb all the water completely, checking if the rice is well cooked (if necessary, add some more water).
+Wash and cook the rice in 2 cups of water with a pinch of salt on a low heat. Allow to absorb all the water completely, checking if the rice is well cooked (if necessary, add some more water).
 
 Add the sugar, lemon peel, cinnamon stick, milk and vegetable butter to the pot and stir until the sugar dissolves. Continue stirring gently until the preparation begins to boil and thickens slightly (about 6 to 8 minutes).
 
