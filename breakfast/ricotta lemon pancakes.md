@@ -10,6 +10,7 @@ Makes pancakes for 2.
 - 3/4 cup milk
 - 2 large eggs
 - 1 lemon zest
+- 1/2 tsp vanilla extract
 - butter, for cooking
 
 1. Whisk together flour, baking powder, sugar, lemon zest, and salt in a bowl. In another bowl, combine ricotta, milk, egg yolks, and vanilla. Gently stir the dry ingredients to the ricotta mixture.
