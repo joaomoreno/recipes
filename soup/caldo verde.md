@@ -17,4 +17,5 @@ Serve in soup plates, garnish with chouriço slices.
 
 ---
 
-[Caldo Verde (Portuguese Potato and Greens Soup) | Kenji's Cooking Show](https://www.youtube.com/watch?v=DoNhhCgLiM0)
+https://www.youtube.com/watch?v=DoNhhCgLiM0
+https://www.seriouseats.com/recipes/2017/01/caldo-verde-portuguese-potato-kale-soup-recipe.html
