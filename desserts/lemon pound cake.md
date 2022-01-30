@@ -3,12 +3,12 @@
 Makes one pound cake loaf.
 
 - 5 tablespoons unsalted butter, softened, plus more for pan
-- 3/4 cup, plus 3 tablespoons sugar, plus more for dusting
-- 1 cup all-purpose flour
+- 150g, plus 3 tablespoons sugar, plus more for dusting
+- 130g all-purpose flour
 - 1/4 teaspoon salt
 - 1/4 teaspoon baking soda
 - 3 tablespoons fresh lemon juice, plus finely grated zest of 2 - lemons, plus more for garnish (optional)
-- 1/4 cup milk
+- 62g milk
 - 2 large eggs
 
 1. Preheat oven to 350 degrees. Butter a 9-by-5-inch loaf pan. Dust with sugar, and tap out excess; set aside. Whisk together flour, salt, and baking soda. Stir together 1 tablespoon lemon juice and the milk.
