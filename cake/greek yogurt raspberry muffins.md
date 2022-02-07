@@ -5,7 +5,7 @@ Makes 12 small muffins.
 - 155 g flour
 - 100 g sugar (or 50g stevia)
 - 1 teaspoon baking powder
-- 1 teaspoon salt
+- 1/2 teaspoon salt
 - 114 g butter room temperature (or 100g coconut oil)
 - 2 eggs large, room temperature
 - 2 teaspoons vanilla extract
